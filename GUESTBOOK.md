@@ -15,4 +15,4 @@ I loooveeeeee the [Chuck](https://www.nbc.com/chuck) TV series.
 HEYYA check out my [website](https://bymi15.github.io) 😆
 
 ### Mateusz Krawczynski
-I spend too much time playing video games
+I spend too much time playing video games and enjoy programming some small personal projects, primarily in C#.
