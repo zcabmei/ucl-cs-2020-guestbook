@@ -19,3 +19,6 @@ HEYYA check out my [website](https://bymi15.github.io) 😆
 
 ### Suraj Kothari
 I love Chrisopher Nolan movies!!!
+
+### Jack Bland
+I'm not very good at coming up with interesting facts about myself~
