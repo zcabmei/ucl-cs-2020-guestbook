@@ -13,3 +13,6 @@ I loooveeeeee the [Chuck](https://www.nbc.com/chuck) TV series.
 
 ### Brian Min
 HEYYA check out my [website](https://bymi15.github.io) 😆
+
+### Mateusz Krawczynski
+I spend too much time playing video games
