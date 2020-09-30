@@ -16,3 +16,6 @@ HEYYA check out my [website](https://bymi15.github.io) 😆
 
 ### Alex Nathanail
 ![](https://i.redd.it/hqculc19byl11.jpg)
+
+### Tan Wei Chain
+Hi! Fun fact! : My parents fumbled with the spelling of my name, it was supposed to be Chien instead of Chain 😆😆
