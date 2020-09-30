@@ -13,3 +13,6 @@ I loooveeeeee the [Chuck](https://www.nbc.com/chuck) TV series.
 
 ### Brian Min
 HEYYA check out my [website](https://bymi15.github.io) 😆
+
+### Prithvi Kohli
+I make games!! here's my [twitter](https://twitter.com/PrithviKGames)
