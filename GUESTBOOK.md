@@ -20,5 +20,32 @@ HEYYA check out my [website](https://bymi15.github.io) 😆
 ### Suraj Kothari
 I love Chrisopher Nolan movies!!!
 
-### Oluwaponmile Femi-Sunmaila
-I'm addicted to league, please help, this isn't a joke it's a cry for help oh god
+### Arslan Aftab
+Guess who's back, back again...
+
+### g
+i am the people's g
+
+### Jay Ong
+G'day all!! Hope you guys have some long arms so you can carry me through this course!!
+
+### Abinav Baskar
+Hey check out my app if you have Android! [Trickshott](https://play.google.com/store/apps/details?id=com.abinavbaskar.trickshott_release)
+
+### Suhail Merali
+[idk what to put here](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
+### Prithvi Kohli
+I make games!! here's my [twitter](https://twitter.com/PrithviKGames)
+
+### Vincent Lefeuve
+Nothing to say tho
+
+### Mateusz Krawczynski
+I spend too much time playing video games and enjoy programming some small personal projects, primarily in C#.
+
+### Danny Xing
+Nice to meet everyone and thanks for the Q&A! 
+
+### Passawis Chaiyapattanaporn
+Ready for allnighters....
