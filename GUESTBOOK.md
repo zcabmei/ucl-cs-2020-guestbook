@@ -49,3 +49,6 @@ Nice to meet everyone and thanks for the Q&A!
 
 ### Passawis Chaiyapattanaporn
 Ready for allnighters....
+
+### Zhe Yu
+Love photography, love music.
