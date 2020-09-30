@@ -35,5 +35,23 @@ Hey check out my app if you have Android! [Trickshott](https://play.google.com/s
 ### Suhail Merali
 [idk what to put here](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
+### Prithvi Kohli
+I make games!! here's my [twitter](https://twitter.com/PrithviKGames)
+
+### Vincent Lefeuve
+Nothing to say tho
+
+### Mateusz Krawczynski
+I spend too much time playing video games and enjoy programming some small personal projects, primarily in C#.
+
+### Danny Xing
+Nice to meet everyone and thanks for the Q&A! 
+
+### Passawis Chaiyapattanaporn
+Ready for allnighters....
+
+### Zhe Yu
+Love photography, love music.
+
 ### Jason Ho
 Avatar the Last Airbender is the greatest animated series of all time no cap
