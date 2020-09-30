@@ -58,3 +58,6 @@ Avatar the Last Airbender is the greatest animated series of all time no cap
 
 ### Sam Lubrano
 Hi, I play guitar
+
+### Tan Wei Chain
+Hi! Fun fact! : My parents fumbled with the spelling of my name, it was supposed to be Chien instead of Chain 😆😆
