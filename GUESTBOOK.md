@@ -23,5 +23,17 @@ I love Chrisopher Nolan movies!!!
 ### Arslan Aftab
 Guess who's back, back again...
 
+### g
+i am the people's g
+
+### Jay Ong
+G'day all!! Hope you guys have some long arms so you can carry me through this course!!
+
+### Abinav Baskar
+Hey check out my app if you have Android! [Trickshott](https://play.google.com/store/apps/details?id=com.abinavbaskar.trickshott_release)
+
+### Suhail Merali
+[idk what to put here](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
 ### Jason Ho
 Avatar the Last Airbender is the greatest animated series of all time no cap
