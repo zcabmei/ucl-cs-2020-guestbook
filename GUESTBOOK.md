@@ -43,3 +43,6 @@ Nothing to say tho
 
 ### Mateusz Krawczynski
 I spend too much time playing video games and enjoy programming some small personal projects, primarily in C#.
+
+### Danny Xing
+Nice to meet everyone and thanks for the Q&A! 
