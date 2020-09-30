@@ -23,5 +23,5 @@ I love Chrisopher Nolan movies!!!
 ### Arslan Aftab
 Guess who's back, back again...
 
-### g
-i am the people's g
+### Jason Ho
+Avatar the Last Airbender is the greatest animated series of all time no cap
