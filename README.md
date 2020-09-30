@@ -31,6 +31,9 @@ Here's an example of the [Markdown](https://guides.github.com/features/mastering
 ```md
 ### Shubham Jain
 I loooveeeeee the [Chuck](https://www.nbc.com/chuck) TV series
+
+### Prithvi Kohli
+I make games!! here's my [twitter](https://twitter.com/PrithviKGames)
 ```
 
 ### Instructions
