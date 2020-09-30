@@ -61,3 +61,6 @@ Hi, I play guitar
 
 ### Tan Wei Chain
 Hi! Fun fact! : My parents fumbled with the spelling of my name, it was supposed to be Chien instead of Chain 😆😆
+
+### Tianchi Chen
+Hi i'm a beginner, please give me some help with programming. XD
