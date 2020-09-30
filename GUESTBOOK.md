@@ -40,3 +40,6 @@ I make games!! here's my [twitter](https://twitter.com/PrithviKGames)
 
 ### Vincent Lefeuve
 Nothing to say tho
+
+### Mateusz Krawczynski
+I spend too much time playing video games and enjoy programming some small personal projects, primarily in C#.
