@@ -20,5 +20,50 @@ HEYYA check out my [website](https://bymi15.github.io) 😆
 ### Suraj Kothari
 I love Chrisopher Nolan movies!!!
 
+### Arslan Aftab
+Guess who's back, back again...
+
+### g
+i am the people's g
+
+### Jay Ong
+G'day all!! Hope you guys have some long arms so you can carry me through this course!!
+
+### Abinav Baskar
+Hey check out my app if you have Android! [Trickshott](https://play.google.com/store/apps/details?id=com.abinavbaskar.trickshott_release)
+
+### Suhail Merali
+[idk what to put here](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
+### Prithvi Kohli
+I make games!! here's my [twitter](https://twitter.com/PrithviKGames)
+
+### Vincent Lefeuve
+Nothing to say tho
+
+### Mateusz Krawczynski
+I spend too much time playing video games and enjoy programming some small personal projects, primarily in C#.
+
+### Danny Xing
+Nice to meet everyone and thanks for the Q&A! 
+
+### Passawis Chaiyapattanaporn
+Ready for allnighters....
+
+### Zhe Yu
+Love photography, love music.
+
+### Jason Ho
+Avatar the Last Airbender is the greatest animated series of all time no cap
+
+### Sam Lubrano
+Hi, I play guitar
+
+### Tan Wei Chain
+Hi! Fun fact! : My parents fumbled with the spelling of my name, it was supposed to be Chien instead of Chain 😆😆
+
+### Tianchi Chen
+Hi i'm a beginner, please give me some help with programming. XD
+
 ### Jack Bland
 I'm not very good at coming up with interesting facts about myself~
