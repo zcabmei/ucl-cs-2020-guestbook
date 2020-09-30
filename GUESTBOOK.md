@@ -37,3 +37,6 @@ Hey check out my app if you have Android! [Trickshott](https://play.google.com/s
 
 ### Prithvi Kohli
 I make games!! here's my [twitter](https://twitter.com/PrithviKGames)
+
+### Vincent Lefeuve
+Nothing to say tho
