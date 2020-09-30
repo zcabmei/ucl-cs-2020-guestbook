@@ -46,3 +46,6 @@ I spend too much time playing video games and enjoy programming some small perso
 
 ### Danny Xing
 Nice to meet everyone and thanks for the Q&A! 
+
+### Passawis Chaiyapattanaporn
+Ready for allnighters....
