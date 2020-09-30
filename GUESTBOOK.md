@@ -31,3 +31,6 @@ G'day all!! Hope you guys have some long arms so you can carry me through this c
 
 ### Abinav Baskar
 Hey check out my app if you have Android! [Trickshott](https://play.google.com/store/apps/details?id=com.abinavbaskar.trickshott_release)
+
+### Tianchi Chen
+Hi i'm a beginner, please give me some help with programming. XD
